@@ -1,2 +1,2 @@
 # pied-piperX
-the D A N K E S T solutions to the local human transport that's free. Forever.
+the D A N K E S T solutions to the blind people. Guaranteed.
